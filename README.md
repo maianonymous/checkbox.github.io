@@ -1,1 +1,1 @@
-new web is comind=g soon.
+new web is coming soon.
